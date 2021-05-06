@@ -1,0 +1,1 @@
+a person died in a mans mouth cause he is acttualy is an insect
